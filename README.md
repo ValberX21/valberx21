@@ -5,7 +5,7 @@
 - 🤔 I’m looking for help with Android Apps
 - 📫 How to reach me: valberxz21hotmail.com
 - ⚡ Fun fact: I love geek culture 🤓
-- ▶️ YouTuber: https://www.youtube.com/@plusultracode/featured
+- ▶️ YouTuber: https://www.youtube.com/@plusultracode
 
 <div align="center">
   <a href="https://github.com/ValberX21">
